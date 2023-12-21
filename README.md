@@ -1,0 +1,1 @@
+# Microsoft-Edge-Windows-11-Registry-Editor-Policies
